@@ -6,6 +6,6 @@
 -#### You can connect with me through gmail
 ##
 ##
-(shivamanikonjeti04122gmail.com)
+(shivamanikonjeti0412gmail.com)
 ##
 ##
